@@ -1,0 +1,1 @@
+Deformaciones Z 3p 15x18(3x3) 3a Grado7.2
